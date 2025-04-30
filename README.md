@@ -1,0 +1,1 @@
+# lomba_mal-nagad-details
